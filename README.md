@@ -1,1 +1,1 @@
-# Visit-Sri_Lanka.com
+# VisitSriLanka.com
